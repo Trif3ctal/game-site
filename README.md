@@ -1,1 +1,1 @@
-idk how this wokrs but im doing the thing
+idk how this wokrs but im doing the thing. game site for me/school
